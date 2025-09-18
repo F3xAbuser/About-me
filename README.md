@@ -1,7 +1,7 @@
 ˗ˏˋ ★ ˎˊ˗ 
 ---
 ! ! ! !ABOUT ME !! ! !   
----
+--- 
 i am a multishipper, please block if i bother you 
 Pansexual/non bi masc?  
 ╰┈➤ˎˊ˗ prns: Theythem/hehim 
@@ -15,7 +15,8 @@ WHAT I DO ONLINE
 hang out with moots, make things, draw, and free commison SMALL THINGS! i will not be accepting money :3 
 --- 
 
-‎‧₊˚✧[! !PONYTOWN ! !]✧˚₊‧ 
+‎‧₊˚✧[! !PONYTOWN ! !]✧˚₊‧  
+---
 Hello,٩(ˊᗜˋ*)و ♡ you will find me at docks, roblox area, libary, cafe, or random spots from time to time 
 ⤷ my most cosplayed people are Devesto, and MeQuot . . .  
    ·̩͙།† ͝ ︶ ͝ ⏝ ͝ ︶ ͝ †། ·̩͙ 
@@ -27,5 +28,5 @@ Hello,٩(ˊᗜˋ*)و ♡ you will find me at docks, roblox area, libary, cafe, o
     DNCY , Do not COPY 
     DNIUCF , Do not interact unless close friend 
     DNI , do not int. at all.  
---- 
+---
 
